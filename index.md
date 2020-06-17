@@ -1,4 +1,4 @@
-                                         Learning through Failure  
+Learning through Failure  
 
 ![image i just uploaded](exit1.jpg)
 
