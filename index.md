@@ -1,4 +1,4 @@
-                                        Exit Ticket – Learning through Failure  
+                                         Learning through Failure  
 
 ![image i just uploaded](exit1.jpg)
 
@@ -24,4 +24,4 @@ When I first chose this class, I thought of simply though that I would learn new
 
 Lastly, if I were to mark myself, I think I should be around A- because I felt like I got most of the exercises completed. I kept track of what I did and reflected on my process. I tried my best to engage with my classmates and I got out of my comfort zone to ask for help when needed. I believe my submissions from week 1 to week 6 showcase how much I have improved throughout the course in terms of my analytical ability, methodology or even argumentation. I am proud of how far I have as someone who did not even know what digital history meant and was trying to avoid programming. I have done my best in all the weekly exercises to be professional and organized. My journey in this class was a great learning experience where I came to see my failures as a tool to learn. I have discovered that I do not need to focus on my results or success to feel satisfied instead, the process of understanding my mistakes have made me feel more accomplished and satisfied. I know this has made be a better student and a future historian. 
 
-![image i just uploaded](exit3.jpg)
+                                 ![image i just uploaded](exit3.jpg)
