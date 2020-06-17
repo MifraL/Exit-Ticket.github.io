@@ -1,6 +1,6 @@
                                                Exit Ticket – Learning through Failure  
 
-![image i just uploaded](exit1.JPG)
+![image i just uploaded](exit1.jpg)
 
 Through this class, my approach to history has expanded so much more than the traditional bubble. Now, I at least know where to do some basic analysis of data rather simply relying on secondary sources on the world wide web. Because of this shift in focus, I have more understanding towards how to form my future research papers. 
 
